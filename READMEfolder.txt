@@ -1,3 +1,0 @@
-sariazia
-#struggles
-github1
